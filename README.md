@@ -12,9 +12,9 @@ These days I build the tools I wish I'd had on the shop floor.
 - 📊 **Ops dashboards**: analysis that showed the real bottleneck was getting bikes built, not fixing them
 
 ### What drives me
-Getting more people on bikes, whatever my title says.
+Getting more people on bikes!
 
 ### Off the clock
-Riding, chess, hot yoga, horror movies, and hanging with my dog Beanie.
+Riding bikes, chess, hot yoga, horror movies, and hanging with my dog Beanie.
 
 🌐 [frenkalassamayoa.com](https://frenkalassamayoa.com) · 💼 [LinkedIn](https://linkedin.com/in/frenkalassamayoa) · 🇺🇸🇬🇹🇸🇻 English / Español
